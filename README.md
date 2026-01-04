@@ -21,3 +21,4 @@ Muitas vezes, o atendimento de suporte gasta tempo precioso com comandos repetit
 **Objetivo:** Transparência técnica e auxílio em rotinas de suporte em TI.
 
 📧 E-mail: contato.renanwillian@gmail.com
+🔗 LinkedIn: www.linkedin.com/in/renan-willian-maciel
